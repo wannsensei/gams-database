@@ -1,12 +1,8 @@
 # gams-database
 
-WhatsApp Game Database
+# WhatsApp Game Database
 
+silahkan digunakan 🗿
 
-
-
-
-
-
-
-pakai aja gpp😹
+# contact me
+WhatsApp: ```wa.me/6287798362716```
