@@ -1,5 +1,3 @@
-# gams-database
-
 # WhatsApp Game Database
 
 silahkan digunakan 🗿
